@@ -2,7 +2,7 @@
 - 👀 I’m interested in dashboard
 - 🌱 I’m currently learning how to join the new team
 - 💞️ I’m looking to collaborate on here
-- 📫 How to reach me ...
+- 📫 How to reach me 📕 (for ad)
 
 <!---
 muya20078/muya20078 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
