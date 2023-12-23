@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @muya20078
 - 👀 I’m interested in dashboard
 - 🌱 I’m currently learning how to join the new team
-- 💞️ I’m looking to collaborate on 吃播（keke
+- 💞️ I’m looking to collaborate on （keke
 - 📫 How to reach me 📕 (for ad)
 
 <!---
